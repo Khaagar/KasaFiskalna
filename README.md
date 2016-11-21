@@ -1,0 +1,2 @@
+# KasaFiskalna
+Taka tam kaska
